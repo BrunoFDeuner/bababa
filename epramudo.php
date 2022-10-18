@@ -1,5 +1,9 @@
 <?php
  
 // ehhhhhhhhhhhhhhhhh o paulo
-// oq
-//vai ti toma no cu mermao
+
+
+
+//BADS
+// uuuq
+//va no cu mermao
